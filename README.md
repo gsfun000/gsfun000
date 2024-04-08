@@ -1,16 +1,13 @@
-### Hi there 👋
+#瓜神-专注黑料曝光吃瓜视频的成人网站！
 
-<!--
-**gsfun000/gsfun000** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+瓜神网站 最新地址https://gs7.fun 🍉🍉🍉  (本信息更新时间 2023-04-04)
 
-Here are some ideas to get you started:
+瓜神网站备用网址 https://gs06.icu （禁止直接点击访问）请复制链接粘贴到浏览器
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+瓜神网站永久地址（需科学上网） https://gs5.fun （禁止直接点击访问）请复制链接粘贴到浏览器
+
+瓜神官方App 暂时在维护中 
+
+瓜神官方TG社群 https://t.me/gs66666666 （禁止直接点击访问）请复制链接粘贴到浏览器
+
+---------------------
